@@ -1,2 +1,2 @@
-# [Home Page](thespacearmyteam.github.io)
+# [Home Page](http://thespacearmyteam.github.io/)
 # [Apply For Our Stream Team](https://thespacearmy.typeform.com/to/EmPsLN)
