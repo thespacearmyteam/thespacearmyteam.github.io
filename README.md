@@ -1,3 +1,3 @@
 # [Home Page](http://thespacearmyteam.github.io/)
-# [Apply For Our Stream Team](https://docs.google.com/forms/d/1AXfGF1YTRfNKIExx28pYlkDicLnZqwaaUnNfoTwHTK8/viewform)
+# [Apply For Our Stream Team](http://goo.gl/forms/WWd6vPKG7k)
 # [Join Us on Discord](https://discord.gg/0YjmLPDzPrSLB8k0)
